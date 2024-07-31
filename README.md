@@ -6,6 +6,8 @@
 -*Pode entrar em contato comigo em aparecida.ribeiro.emanuelly@escola.pr.gov.br*
 -*Pronomes: Ela/Dela*
 -*🌻🦋🫀*
+
+
 ![](https://tenor.com/pt-BR/view/--gif-18364883359882952299.gif)
 <!---
 EmanuellyPoderguski/EmanuellyPoderguski is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

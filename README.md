@@ -10,6 +10,8 @@
 
 ![](https://tenor.com/pt-BR/view/--gif-18364883359882952299.gif)
 
+![](https://tenor.com/pt-BR/view/めるる-密桃猫-好き-gif-17201707553854104499.gif)
+
 ![JavaScript](https://img.shields.io/badge/javascript-%23323330.svg?style=for-the-badge&logo=javascript&logoColor=%23F7DF1E)
 ![Scratch](https://img.shields.io/badge/Scratch-4D97FF?style=for-the-badge&logo=Scratch&logoColor=white)
 
